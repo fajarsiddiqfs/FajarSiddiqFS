@@ -5,6 +5,6 @@
  
 - 👨‍💻 Projects, Vlogs, Podcasts, Blog, Shop & Booking, [Fajar Siddiq](https://fajarsiddiq.com/)
 
-- 🔭 I’m running a Micro-Startup Agency, [Euphorya](https://euphorya.co)
+- 🔭 I’m running a Micro-Startup Agency, [Euphorya](https://euphorya.co), Building over 20+ Projects
 
 - ⚡ Fun fact **I'm a Digital Nomad & Professional Yo-Yo Player for 20+ years**
