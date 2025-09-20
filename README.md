@@ -3,8 +3,8 @@
 
 <p align="left"> <a href="https://twitter.com/fajarsiddiqfs" target="blank"><img src="https://img.shields.io/twitter/follow/fajarsiddiqfs?logo=twitter&style=for-the-badge" alt="fajarsiddiqfs" /></a> </p>
  
-- 👨‍💻 Projects, Vlogs, Podcasts, Blog, Shop & Booking, [Fajar Siddiq](https://fajarsiddiq.com/)
+- 👨‍💻 Projects, Vlogs, Podcast, Blog, Sho, Booking, Course, Reviews, Tutorials, Affiliates, Campaigns, Livestream [Fajar Siddiq](https://fajarsiddiq.com/)
 
 - 🔭 I’m running a Micro-Startup Agency, [Euphorya](https://euphorya.co), Building over 20+ Projects
 
-- ⚡ Fun fact **I'm a Digital Nomad & Professional Yo-Yo Player for 20+ years**
+- ⚡ Fun fact **I'm a Digital Nomad & Professional Yo-Yo Player, For 20+ Years of Journey**
