@@ -4,6 +4,6 @@
  
 - [Fajar Siddiq](https://fajarsiddiq.com/)  Projects, Vlogs, Podcast, Blog, Shop, Booking, Course, Reviews, Tutorials, Affiliates, Campaigns, Livestream 
 
-- [Euphorya](https://euphorya.co)  I’m running a Singapore-Based Micro-Startup Agency, Building over 20+ Projects for SEA Startup Eco-system
+- [Euphorya](https://euphorya.co)  I’m running a Singapore-Based Micro-Startup Agency, Building over 20+ Projects currently
 
 - Fun fact **I'm a Digital Nomad & Professional Yo-Yo Player, 20+ Years of Journey**
