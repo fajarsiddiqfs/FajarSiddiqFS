@@ -4,7 +4,7 @@
  
 - [Fajar Siddiq](https://fajarsiddiq.com/)  Projects, Vlogs, Podcast, Blog, Shop, Booking, Course, Reviews, Tutorials, Affiliates, Campaigns, Livestream 
 
-- [Euphorya](https://euphorya.co)  Building: Micro-Startup Agency, Building over 20+ Projects currently
+- [Euphorya](https://euphorya.co)  Building: Micro-Startup Agency, Building over 20+ Projects currently: E-commerce, Software, Production & Community.
 
 - [Media Kit](https://media.fajarsiddiq.com/)  Media Kit: Brands & Partnerships, Socials, Analytics, Latest Posts, Collaboration, Rates, Packages 
 
