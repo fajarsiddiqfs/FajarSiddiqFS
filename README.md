@@ -4,4 +4,4 @@
 
 - [Euphorya](https://euphorya.co)  Building: Micro-Startup Agency, Building over 20+ Projects currently: E-commerce, Software, Production & Community.
 
-- Fun fact **I'm a Serial Entrepreneur, Digital Nomad & Professional Yo-Yo Player, 20+ Years of Journey**
+- Fun fact: **I'm a Serial Entrepreneur, Digital Nomad & Professional Yo-Yo Player, 20+ Years of Journey**
