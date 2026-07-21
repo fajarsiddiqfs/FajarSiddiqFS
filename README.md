@@ -4,6 +4,4 @@
 
 - [Euphorya](https://euphorya.co)  Building: Micro-Startup Agency, Building over 20+ Projects currently: E-commerce, Software, Production & Community.
 
-- [Media Kit](https://media.fajarsiddiq.com/)  Media Kit: Brands & Partnerships, Socials, Analytics, Latest Posts, Collaboration, Rates, Packages 
-
 - Fun fact **I'm a Serial Entrepreneur, Digital Nomad & Professional Yo-Yo Player, 20+ Years of Journey**
